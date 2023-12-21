@@ -17,7 +17,7 @@
 ## Get in Touch
 - 📫 Feel free to reach out to me for collaboration, questions, or just to chat. I'm always open to new opportunities and connections.
 - 📧 Email: [kalana.bamunuarachchi@outlook.com](mailto:kalana.bamunuarachchi@outlook.com)
-- 💼 LinkedIn: [Kalana Bamunuarachchi](https://www.linkedin.com/in/your-profile)
+- 💼 LinkedIn: [Kalana Bamunuarachchi](https://www.linkedin.com/in/kalana-bamunuarachchi/)
 - 🎨 Behance:  [Kalana Bamunuarachchi](https://www.behance.net/kalanabamunua1)
   
 
