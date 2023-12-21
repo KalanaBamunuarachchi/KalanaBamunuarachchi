@@ -16,9 +16,10 @@
 
 ## Get in Touch
 - 📫 Feel free to reach out to me for collaboration, questions, or just to chat. I'm always open to new opportunities and connections.
-- 📧 Email: [your.email@example.com](mailto:your.email@example.com)
-- 💼 LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/your-profile)
-- 🐦 Twitter: [Your Twitter Handle](https://twitter.com/yourhandle)
+- 📧 Email: [kalana.bamunuarachchi@outlook.com](mailto:kalana.bamunuarachchi@outlook.com)
+- 💼 LinkedIn: [Kalana Bamunuarachchi](https://www.linkedin.com/in/your-profile)
+- 🎨 Behance:  [Kalana Bamunuarachchi](https://www.behance.net/kalanabamunua1)
+  
 
 ## Let's Connect!
 I'm excited to connect with fellow developers, designers, and enthusiasts. Let's build and create amazing things together! 🚀
